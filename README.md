@@ -1,1 +1,1 @@
-# supervizor-bot-v14
+## SİKİMEN KEYFİNE GÖRE SUPERVİZOR ATICAM KULANIRSINIZ.
